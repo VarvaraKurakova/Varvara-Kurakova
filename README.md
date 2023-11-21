@@ -1,1 +1,1 @@
-# Varvara-Kurakova
+# VarvaraKurakova
